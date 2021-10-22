@@ -1,8 +1,8 @@
-# Hobbies
 #### [Home](https://github.com/lukefisha/README.md.git)
 #### [Hometown](https://github.com/lukefisha/Hometown.md.git)
 #### [Family](https://github.com/lukefisha/Family.md.git)
 #### [School and Degree](https://github.com/lukefisha/School.md.git)
+# Hobbies
 I am an avid gamer and athlete. My favorite video games include:
 1. _Rocket League_
 2. _Apex Legends_
