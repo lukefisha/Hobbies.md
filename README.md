@@ -9,4 +9,6 @@ I am an avid gamer and athlete. My favorite video games include:
 3. _Minecraft_
 4. _Call of Duty_
 
+[Check out this cool clip I got in warzone](https://youtu.be/P4Iu5K4PLrw)
+
 In highschool I played soccer all 4 years so I love to play whenever. Also I like to just chill and watch Netflix or Youtube. My favorite tv show is by far _The Office_.
